@@ -1,2 +1,2 @@
 # Henush
-welcome evrybody wellsstay
+welcome everybody wellsstay
